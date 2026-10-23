@@ -1,3 +1,3 @@
 # addis
 
-You can learn all about deka at [addis.gg](https://addis.gg)
+You can learn all about addis at [addis.gg](https://addis.gg)
